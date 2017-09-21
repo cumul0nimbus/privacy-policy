@@ -1,4 +1,4 @@
-##Privacy Policy
+Privacy Policy
 
 Noman Riaz built the Brainy four app as an Ad Supported app. This SERVICE is provided by Noman Riaz at no cost and is intended for use as is.
 
